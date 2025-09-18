@@ -1,1 +1,1 @@
-Initial content for K-5 Science Unit 2 Lesson 3.
+Updated content for K-5 Science Unit 2 Lesson 3 with new dinosaur facts.
